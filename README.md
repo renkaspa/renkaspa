@@ -1,6 +1,5 @@
 # Hello everyone!!!
-### Ofc that i´m going to write this in English. I would be a loser if not 😦
-### There´s a lot to know about me but this isn't the place to put that information
+### This is my first test about doing this part of my profile, that means that nothing here is permanent.
 ### Anyways here's some basic information about renkaspa
 
 I'm 19 years old, reaching my 20's
