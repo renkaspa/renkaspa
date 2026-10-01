@@ -1,8 +1,22 @@
 # Hello everyone!!!
 ### Ofc that i´m going to write this in English. I would be a loser if not 😦
-There´s a lot to know about me.
-But here isn't the place to put that information.
-So all you need to know is that i know nothing, but i try my best.
+### There´s a lot to know about me but this isn't the place to put that information
+### Anyways here's some basic information about me
+I'm 19 years old reaching my 20'
+
+My preferences:
+
+Winte⛄/Sugar🍪/Kittens😼/Gold/Granate
+
+My experience:
+
+Nothing/Studying an engineering/More nothing/I got the max score in the PAES M1 2026/And finally nothing
+
+How to contact me:
+
+Ask me irl about my socials🤠
+
+That's all you need to know about renkaspa. See you later!
 <!--
 **renkaspa/renkaspa** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
