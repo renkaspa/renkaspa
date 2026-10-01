@@ -3,15 +3,15 @@
 ### There´s a lot to know about me but this isn't the place to put that information
 ### Anyways here's some basic information about renkaspa
 
-I'm 19 years old reaching my 20'
+I'm 19 years old, reaching my 20's
 
 My preferences:
 
-Winte⛄/Sugar🍪/Kittens😼/Gold/Granate
+Winter ⛄ / Sugar 🍪 / Kittens 😼 / Gold/Granate
 
 My experience:
 
-Nothing/Studying an engineering/More nothing/I got the max score in the PAES M1 2026/And finally nothing
+Nothing / Studying an engineering / More nothing / I got the maximum score in the PAES M1 2026 / And finally nothing
 
 How to contact me:
 
