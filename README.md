@@ -1,7 +1,8 @@
 # Hello everyone!!!
-## I´m renkaspa and this is a test😿
-### Also, ofc that i´m going to write this in English. I would be a loser if not 😦
-
+### Ofc that i´m going to write this in English. I would be a loser if not 😦
+There´s a lot to know about me.
+But here isn't the place to put that information.
+So all you need to know is that i know nothing, but i try my best.
 <!--
 **renkaspa/renkaspa** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
