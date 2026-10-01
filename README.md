@@ -1,7 +1,8 @@
 # Hello everyone!!!
 ### Ofc that i´m going to write this in English. I would be a loser if not 😦
 ### There´s a lot to know about me but this isn't the place to put that information
-### Anyways here's some basic information renkaspa
+### Anyways here's some basic information about renkaspa
+
 I'm 19 years old reaching my 20'
 
 My preferences:
